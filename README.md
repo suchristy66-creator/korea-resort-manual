@@ -1,0 +1,1 @@
+# korea-resort-manual
